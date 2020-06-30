@@ -11,6 +11,7 @@ Wie Ronja Räubertochter sagte:
 * eigensinnig
 * stolz
 * warmherzig 
+* verlaust
 
 
 <img src="https://images.app.goo.gl/r8N55aXGyc79uBKf7"/>
